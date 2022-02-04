@@ -7,4 +7,4 @@ Why am I on GitHub?
 
 2) I am very excited to connect with bright and amazing minds on this plateform!
 
-3) Looking forward to learn and maybe help someone in there journey.
+3) Looking forward to learn and maybe help someone in their journey as well.
